@@ -22,6 +22,7 @@ O mercado está em processo de regularização com a Lei 14.790/2023 e a criaç�
 . Entre as medidas restritivas já em vigor, destaca-se a proibição do uso de cartões de crédito para pagamento de apostas, visando coibir o superendividamento
 . Para o tratamento, recomenda-se a Terapia Cognitivo-Comportamental (TCC) e o apoio de grupos como Jogadores Anônimos, além da restrição de acesso ao dinheiro por parte do dependente
 
+
 Conceitos Principais
 
 Aversão à Perda: Fenômeno psicológico onde a dor de perder dinheiro é mais intensa do que o prazer de ganhar, levando o apostador a arriscar mais para tentar "recuperar" o prejuízo
